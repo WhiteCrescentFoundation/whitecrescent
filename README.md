@@ -1,0 +1,3 @@
+We seek to build for human beings and develop society in accordance with sustainable development and human rights standards to contribute to providing better living conditions for society, and to work on all segments of community through programs and training courses with the aim to empower the community members to contribute effectively to the development and protection of civil rights.
+
+Our goal is to put in place development projects in all areas.
